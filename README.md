@@ -1,5 +1,13 @@
 ### Hi there 👋
 
+✨ whoami<br>
+<br>
+• Ħòɱó tɛƈƞơƪƠǥǏƈʊs Husband & Dad<br>
+<br>
+• %i[ruby rails javascript].join<br>
+• cake driven development<br>
+• mistake-driven learning
+
 <!--
 **tOOnPT/tOOnPT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
