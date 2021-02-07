@@ -1,10 +1,10 @@
 ### Hi there 👋
 
-✨ whoami<br>
 <br>Ħòɱó tɛƈƞơƪƠǥǏƈʊs Husband & Dad<br>
-- %i[ruby rails javascript].join<br>
-- cake driven development<br>
-- mistake-driven learning
+✨ %i[ruby rails javascript].join<br>
+✨ cake driven development<br>
+✨ mistake-driven learning<br>
+✨ [know more](https://jmmalaca.github.io/)<br>
 
 <!--
 **tOOnPT/tOOnPT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
