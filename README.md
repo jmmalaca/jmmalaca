@@ -8,7 +8,7 @@
 ☕️ && 🍰 driven engineering<br>
 zero bugs 🤯 policy follower<br>
 <br>
-single malt 🥃 lover, not single malt 👩‍❤️‍💋‍👨 man<br>
+single malt 🥃 lover, not single malt 👩‍❤️‍💋‍👨 man 🐾<br>
 <br>
 based in Coimbra, Portugal 🇵🇹 
 
