@@ -6,8 +6,8 @@
 <br>
 ✨%i[ruby rails javascript].join<br>
 ☕️ && 🍰 driven engineering<br>
-<br>
 zero bugs 🤯 policy follower<br>
+<br>
 single malt 🥃 lover, not single malt 👩‍❤️‍💋‍👨 man<br>
 <br>
 based in Coimbra, Portugal 🇵🇹 
