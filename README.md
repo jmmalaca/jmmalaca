@@ -1,15 +1,15 @@
 ### Hi there 👋
 
-Ħòɱó tɛƈƞơƪƠǥǏƈʊs Dad 👨‍👧
-
-🚀web engineer @ marsbased 
-✨%i[ruby rails javascript].join
-
-☕️ && 🍰 driven engineering 
-zero bugs 🤯 policy follower
-
-single malt 🥃 lover, not single malt 👩‍❤️‍💋‍👨 man 
-
+Ħòɱó tɛƈƞơƪƠǥǏƈʊs Dad 👨‍👧<br>
+<br>
+🚀web engineer @ marsbased<br>
+<br>
+✨%i[ruby rails javascript].join<br>
+☕️ && 🍰 driven engineering<br>
+<br>
+zero bugs 🤯 policy follower<br>
+single malt 🥃 lover, not single malt 👩‍❤️‍💋‍👨 man<br>
+<br>
 based in Coimbra, Portugal 🇵🇹 
 
 <!--
