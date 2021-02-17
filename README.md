@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Ħòɱó tɛƈƞơƪƠǥǏƈʊs Dad 👨‍👧<br>
+Ħòɱó tɛƈƞơƪƠǥǏƈʊs Husband & Dad 👨‍👧<br>
 <br>
 🚀web engineer @ marsbased<br>
 <br>
