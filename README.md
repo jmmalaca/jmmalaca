@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Ħòɱó tɛƈƞơƪƠǥǏƈʊs Dad 👨‍👧<br>
+Ħòɱó tɛƈƞơƪƠǥǏƈʊs Husband & Dad 👨‍👩‍👧<br>
 
 🚀web engineer @ MarsBased<br>
 ✨%i[ruby rails javascript].join<br>
