@@ -6,7 +6,7 @@
 ✨%i[ruby rails javascript].join<br>
 <br>
 ☕️ && 🍰 driven engineering<br>
-zero bugs 🤯 policy follower<br>
+one bug rule 🤯 follower<br>
 <br>
 single malt 🥃 lover, not single malt 👩‍❤️‍💋‍👨 man 🐾<br>
 <br>
