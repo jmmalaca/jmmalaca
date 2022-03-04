@@ -8,7 +8,7 @@
 ☕️ && 🍰 driven engineering<br>
 one bug rule 🤯 follower<br>
 <br>
-single malt 🥃 lover, not single malt 👩‍❤️‍💋‍👨 man 🐾<br>
+single malt 🥃 lover, not single 👩‍❤️‍💋‍👨 man 🐾<br>
 <br>
 ☁️ about.me/jmalaca 🏡 Portugal 🇵🇹
 
