@@ -2,7 +2,7 @@
 
 Ħòɱó tɛƈƞơƪƠǥǏƈʊs Husband & Dad 👨‍👩‍👧<br>
 
-🚀web engineer @ MarsBased<br>
+🚀 web engineer @ MarsBased<br>
 ✨%i[ruby rails javascript].join<br>
 <br>
 ☕️ && 🍰 driven engineering<br>
