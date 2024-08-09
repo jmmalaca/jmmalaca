@@ -10,7 +10,7 @@ one bug rule 🤯 follower<br>
 <br>
 single malt 🥃 lover, not single 👩‍❤️‍💋‍👨 man 🐾<br>
 <br>
-☁️ [about.me/jmalaca](about.me/jmalaca) 🏡 Portugal 🇵🇹
+☁️ [about.me/jmalaca](https://about.me/jmalaca) 🏡 Portugal 🇵🇹
 
 <!--
 **tOOnPT/tOOnPT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
